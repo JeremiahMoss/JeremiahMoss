@@ -1,0 +1,6 @@
+- 👋 Hi, I’m 
+- 👀 I’m interested in your ass
+- 🌱 I’m currently learning nothing
+- 💞️ I’m looking to collaborate on ghcfbyt7gtfvyu
+- 📫 How to reach me ms coutant is dumb
+--->
